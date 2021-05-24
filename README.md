@@ -2,7 +2,7 @@
 
 🤓 Software Engineer at [@roads.run](https://roads.run) <br>
 🇧🇷 Born in Fernandópolis, Brazil <br>
-🇧🇷 Living in Rio de Janeiro, Brazil <br>
+🇧🇷 Living in Rio de Janeiro, Brazil 🏖️ <br>
 
 ### Find me elsewhere 🌎
 
