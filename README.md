@@ -2,7 +2,7 @@
 
 🤓 Software Engineer & Team Leader at [@Avenue](https://avenue.us) <br>
 🇧🇷 Born in Fernandópolis, Brazil <br>
-🇧🇷 Living in São Paulo, Brazil 🏖️ <br>
+🇧🇷 Living in São Paulo, Brazil <br>
 
 ### Find me elsewhere 🌎
 
