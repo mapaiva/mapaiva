@@ -1,6 +1,6 @@
 ### Hey, I'm Matheus! 👋
 
-🤓 Software Engineer & Team Leader at [@Avenue](https://avenue.us) <br>
+🤓 Software Engineer @ [Google](https://www.linkedin.com/company/google/) <br>
 🇧🇷 Born in Fernandópolis, Brazil <br>
 🇧🇷 Living in São Paulo, Brazil <br>
 
